@@ -1,1 +1,1 @@
-# fang-den-ball.
+Readme gelöscht
